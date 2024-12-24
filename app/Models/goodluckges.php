@@ -1,0 +1,3 @@
+lalallala
+kalaladklkldk
+ga jelas
